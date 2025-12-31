@@ -1,6 +1,6 @@
 # PWarwq
 
-### Hello, my name us3rn4m3 PWarwq, I'am only UI/UX Designer, ~I also do CTF~. Lazy to complete this
+### Hello, my name PWarwq, I'am only UI/UX Designer, ~I also do CTF~. Lazy to complete this
 
 > Yeah yknow ? i hate to be a worker (Im unemployment)
 
