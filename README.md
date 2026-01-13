@@ -4,8 +4,5 @@
 
 > Yeah yknow ? i hate to be a worker (Im unemployment)
 
+> i want be boss internship, i dont want be worker
 
-
-Cybersecurity Enthusiast.
-CTF: Forensic • Crypto
-UI/UX Designer.
